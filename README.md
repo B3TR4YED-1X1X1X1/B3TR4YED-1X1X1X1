@@ -3,31 +3,31 @@
 </p>
 
 <p align="center"> 
- ︶ 💙➣ ₊ *1X1X1X1 , froggo* </p>
+. ︶  ➣ 🧪 ₊ *1X1X1X1 , froggo* </p>
 
 <p align="center">
-⟢﹒💤﹒16 y/o﹒➜ </p>
+⏆﹒🌿 ✾﹒16 y/o﹒➜ </p>
 
 <p align="center">
-❀﹒🪡 ⇅﹒𝟙. he/him﹒∿ </p>
+⇅﹒⤹﹒🐊﹒𝟙. he/him﹒❛ </p>
 
 <p align="center">
-﹒＞＜﹒🩹 ⇆﹒𝟚. it/its </p>
+﹒〣﹒🎲 ❛❛﹒﹒𝟚. it/its</p>
 
 <p align="center">
-═════✬✩══╡˚✧✬✧˚╞══✩✬═════ </p>
+ꕥ═════════►░░░░░░◄═════════ꕥ </p>
 
 <p align="center">
-extra !! (˶ˆᗜˆ˵ ) </p>
+extra... (  ︶︿︶) </p>
 
 <p align="center">
-✧ · 💠 **don't follow if**: basic criteria, against irls, fictkins, etc, rude or toxic people, attention seekers, disorder fakers, bots </p>
+✧ · 🦠 **don't follow if**: basic criteria, against irls, fictkins, etc, rude or toxic people, attention seekers, disorder fakers, bots </p>
 
 <p align="center">
-﹐✶ꜜ﹒🌀 interests: brawl stars, reverse: 1999, cookie run, hollow knight, dandy's world, block tales, studio investigrave, pokemon, twenty one pilots, murder drones, the amazing digital circus, forsaken </p>
+﹐✶ꜜ﹒💚 interests: brawl stars, reverse: 1999, cookie run, hollow knight, dandy's world, block tales, studio investigrave, pokemon, twenty one pilots, murder drones, the amazing digital circus, forsaken </p>
 
 <p align="center">
-ᶻᶻ ✶ 🧊 ew: bugs, gore, nsfw, drama </p>
+ᶻᶻ ✶ 🦕 ew: bugs, gore, nsfw, drama </p>
 
 
 <p align="center"> 
