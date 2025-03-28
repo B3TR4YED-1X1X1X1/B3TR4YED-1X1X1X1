@@ -31,5 +31,5 @@ extra !! (˶ˆᗜˆ˵ ) </p>
 
 
 <p align="center"> 
-  <img width="550" height="300" src="https://64.media.tumblr.com/08343ef7663ff72768a8fe63e8a9ec0f/12bcdd913180c647-3e/s100x200/6a3223a03b2f7429ce5a40b8ebeba088854da588.gifv">
+  <img width="350" height="200" src="https://64.media.tumblr.com/08343ef7663ff72768a8fe63e8a9ec0f/12bcdd913180c647-3e/s100x200/6a3223a03b2f7429ce5a40b8ebeba088854da588.gifv">
 </p>
