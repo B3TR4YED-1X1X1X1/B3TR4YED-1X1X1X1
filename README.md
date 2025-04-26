@@ -3,7 +3,7 @@
 </p>
 
 <p align="center"> 
-. ︶  ➣ 🧪 ₊ froggo , 1X </p>
+. ︶  ➣ 🧪 ₊ froggo , 1X id ~ t.masc </p>
 
 <p align="center">
 ⏆﹒🌿 ✾﹒16 y/o﹒➜ </p>
