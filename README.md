@@ -24,7 +24,7 @@ extra... (  ︶︿︶) </p>
 ✧ · 🦠 **don't follow if**: basic criteria, against irls, fictkins, etc, r3al1ty ch3ck3rs, rude or toxic people, attention seekers, disorder fakers, bots </p>
 
 <p align="center">
-﹐✶ꜜ﹒💚 interests: brawl stars, reverse: 1999, cookie run, hollow knight, dandy's world, block tales, studio investigrave, pokemon, twenty one pilots, murder drones, the amazing digital circus, forsaken </p>
+﹐✶ꜜ﹒💚 interests: brawl stars, reverse: 1999, cookie run, hollow knight, dandy's world, block tales, studio investigrave, pokemon, twenty one pilots, murder drones, the amazing digital circus, forsaken(not a player, i just like the characters) </p>
 
 <p align="center">
 ᶻᶻ ✶ 🦕 ew: bugs, gore, nsfw, drama </p>
